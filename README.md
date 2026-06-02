@@ -1,1 +1,0 @@
-# jejakkaryakelas1D
